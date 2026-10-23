@@ -1,1 +1,1 @@
-# Screenshots_of_Rider_App
+# Screenshots_of_Uber_App
